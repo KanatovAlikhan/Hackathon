@@ -1,1 +1,2 @@
 # Hackathon
+Thank you for this experience and for meeting good people. We are a team despite the fact that there are 4 of us and 3 games. The first game about floods in Kazakhstan and our goal is to save people from the islands. The second game is made in a humorous style, emphasizing the issues of Bishimbayev's trial. The last game about the Great Silk Road that passed through Kazakhstan. You need to collect a gold bar while being wary of your enemies. Thank you for this valuable experience Kelgenbaev Arnur
